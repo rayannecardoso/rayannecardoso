@@ -1,4 +1,4 @@
-## Olá, eu sou a Ray! 😃
+## Olá, eu sou a Rayanne! 😃
 
 
 - 🔭 Eu sou geógrafa
